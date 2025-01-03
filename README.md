@@ -1,3 +1,3 @@
 ## Kauan Rodegheri
 
-![python](https://imgur.com/a/R8lLDND)
+![python](https://i.imgur.com/afYbRdv.png)
